@@ -11,6 +11,10 @@
 
 🎵 [Sultan Of The Disco - Shining Road](https://www.youtube.com/watch?v=0JrApoTU4xY&list=RDD9QtiNBfy3Q&index=6)
 
+🎵 [Stevie Wonder - Isn't She Lovely](https://www.youtube.com/watch?v=oE56g61mW44&list=RDoE56g61mW44)
+
+🎵 [The Jackson 5](https://www.youtube.com/watch?v=y2bVIBwpCTA&list=RDy2bVIBwpCTA&start_radio=1)
+
 --
 
 
