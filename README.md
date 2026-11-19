@@ -17,6 +17,11 @@
 
 🎵 [Gen Hoshino星野源 - Koi恋](https://www.youtube.com/watch?v=KMdTrqzEI0I&list=RDKMdTrqzEI0I&start_radio=1)
 
+🎵 [Gen Hoshino星野源 - Koi恋](https://www.youtube.com/watch?v=KMdTrqzEI0I&list=RDKMdTrqzEI0I&start_radio=1)
+
+🎵 [Daniel Caesar - Who Knows](https://www.youtube.com/watch?v=glscfhJyZHo)
+
+
 --
 
 
