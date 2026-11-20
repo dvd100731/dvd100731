@@ -1,7 +1,7 @@
 # 👋 Hi, I'm 승우!
 
 🎸 Bass Player  
-🎵 Jazz · Funk 
+🎵 Jazz · Funk · Blues
 
 ---
 
@@ -21,7 +21,7 @@
 
 🎵 [Daniel Caesar - Who Knows](https://www.youtube.com/watch?v=glscfhJyZHo)
 
-
+이거 진짜 명곡이니까 한 번씩 들어봐주세요
 --
 
 
