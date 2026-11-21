@@ -17,8 +17,6 @@
 
 🎵 [Gen Hoshino星野源 - Koi恋](https://www.youtube.com/watch?v=KMdTrqzEI0I&list=RDKMdTrqzEI0I&start_radio=1)
 
-🎵 [Gen Hoshino星野源 - Koi恋](https://www.youtube.com/watch?v=KMdTrqzEI0I&list=RDKMdTrqzEI0I&start_radio=1)
-
 🎵 [Daniel Caesar - Who Knows](https://www.youtube.com/watch?v=glscfhJyZHo)
 
 🎵 [Jacob Collier - Time Alone With You ft. Daniel Caesar](https://www.youtube.com/watch?v=2qUCyW7ewPs&list=RDpJo67-wjy_g&index=4)
